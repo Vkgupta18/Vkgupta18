@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Vinit Kumar Gupta
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... Btech 2nd year
-- 📫 How to reach me ...ayushgupta9167@gmail.com
+- 📫 How to reach me - ayushgupta9167@gmail.com
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...
 
